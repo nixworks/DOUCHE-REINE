@@ -1,2 +1,1 @@
-# DOUCHE-REINE
-灌水器王后
+# DOUCHE REINE ( 灌水器王后 )
